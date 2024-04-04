@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AdamBeluga
-- 👀 I’m interested in .cooking,playing tennis,playing soccer..
-- 🌱 I’m currently learning computer science...
+- 👀 I’m interested in .cooking,playing tennis,playing soccer,and eating food
+- 🌱 I’m currently learning computer scienc
 - 💞️ I’m looking to collaborate with Nick DiGiovanni ...
 - 📫 How to reach me my email
 - 😄 Pronouns: ...Djo/kovic
